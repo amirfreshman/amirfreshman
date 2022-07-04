@@ -8,3 +8,6 @@
 amirfreshman/amirfreshman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+amin2144<!.....username
+email addresses <!..... zodo40@yahoo.com
+Pass <!..... as2144sh
